@@ -1,5 +1,1 @@
-# Undergraduate Researcher
 
-## Education
-
-### Skills
